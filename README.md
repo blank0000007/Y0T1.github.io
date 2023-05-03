@@ -1,2 +1,2 @@
 # Y0T1.github.io
-<p>This is a test</p>
+<p>If there has any error , please contact me quickly, ありがとうございました</p>
